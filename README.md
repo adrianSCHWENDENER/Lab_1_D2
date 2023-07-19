@@ -1,1 +1,3 @@
-# Lab_1_D2
+Link de los videos:
+asda
+asda
